@@ -1,1 +1,0 @@
-# swatantra-choudhary.github.io
